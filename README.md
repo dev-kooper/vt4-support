@@ -13,4 +13,4 @@
 
 ## Контакты
 
-Email: kktwktvtyw@privaterelay.appleid.com
+Email: con-07-remand@icloud.com
